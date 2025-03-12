@@ -1,3 +1,3 @@
 # The-Unspoken-Goodbye
 
-Web Link - https://story.cm0zone.xyz/
+Web Link - https://krishnaperera.github.io/The-Unspoken-Goodbye/
